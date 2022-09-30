@@ -6,6 +6,6 @@ A Paris, tout le monde était fan d'une série du nom de Harry Potter où le pro
 
 A Paris, tout le monde était fan d'une série du nom de Harry Potter où le protaginiste était comme Scooby un sorcier. cette nuit là, la mairie de Paris avait organisé une randonée et il fallait se rendre au téléphérique avant 20h. Scooby y alla et vit que Devine l'avait suivi.
 
-
+4 mangemorts étaient derrière lui. N'écoutant que son instinct, Scooby se jeta derrière un rocher quand Sammy surgit d'une cabine de téléphérique. Scooby se rendit compte qu'il n'avait que très peu d'entrainement et qu'il avait oublié sa baguette chez lui.
 
 
