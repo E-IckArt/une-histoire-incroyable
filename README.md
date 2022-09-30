@@ -9,3 +9,5 @@ A Paris, tout le monde était fan d'une série du nom de Harry Potter où le pro
 4 mangemorts étaient derrière lui. N'écoutant que son instinct, Scooby se jeta derrière un rocher quand Sammy surgit d'une cabine de téléphérique. Scooby se rendit compte qu'il n'avait que très peu d'entrainement et qu'il avait oublié sa baguette chez lui.
 
 Heureusement, Sammy avait pensé a tout et lui avait amené une Mystery Machine immatriculé : 59-SDR-47. Scooby s'enfuit et alla chercher de l'aide rue incroyable (une rue recommandée par Sammy en cas de besoin). Il y trouva le professeur Dumbeldore qui lui vint en aide et transplana instantanément car la vie de l'ami de Scooby lui tenait a coeur. 
+
+Heureusement, Sammy avait pensé a tout et lui avait amené une Mystery Machine immatriculé : 59-SDR-47. Scooby s'enfuit et alla chercher de l'aide rue incroyable (une rue recommandée par Sammy en cas de besoin). Il y trouva le professeur Dumbeldore qui lui vint en aide et transplana instantanément car la vie de l'ami de Scooby lui tenait a coeur. 
