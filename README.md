@@ -4,6 +4,8 @@
 
 A Paris, tout le monde était fan d'une série du nom de Harry Potter où le protaginiste était comme Scooby un sorcier. cette nuit là, la mairie de Paris avait organisé une randonée et il fallait se rendre au téléphérique avant 20h. Scooby y alla et vit que Devine l'avait suivi. 
 
+A Paris, tout le monde était fan d'une série du nom de Harry Potter où le protaginiste était comme Scooby un sorcier. cette nuit là, la mairie de Paris avait organisé une randonée et il fallait se rendre au téléphérique avant 20h. Scooby y alla et vit que Devine l'avait suivi.
+
 
 
 
