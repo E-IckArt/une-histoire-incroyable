@@ -1,13 +1,15 @@
 # Une histoire incroyable
 
-"Tu es un sorcier Scooby !" Chaque nuit, le même rêve, la voix de Sammy résonnait toujours dans sa tête depuis qu'il l'avait rencontré cet été. Scooby n'était pas normal ! C'était le soir, il pleuvait.
+C'était le matin à Paris. Scooby révait d'une journée comme les autres mais dans son réve, Voldemort, son pire ennemi, n'existait pas.  
 
-A Paris, tout le monde était fan d'une série du nom de Harry Potter où le protaginiste était comme Scooby un sorcier. cette nuit là, la mairie de Paris avait organisé une randonée et il fallait se rendre au téléphérique avant 20h. Scooby y alla et vit que Devine l'avait suivi. 
+Scooby fut réveillé par Sammy, a qui il avait promis d'aller faire une visite de gratte-ciel. Scooby se leva difficilement et regarda par la fenétre de son appartement, il pleuvait.  
 
-A Paris, tout le monde était fan d'une série du nom de Harry Potter où le protaginiste était comme Scooby un sorcier. cette nuit là, la mairie de Paris avait organisé une randonée et il fallait se rendre au téléphérique avant 20h. Scooby y alla et vit que Devine l'avait suivi.
+Ils marchèrent jusqu'au rez de chaussée du gratte-ciel quand soudain, Voldemort armé d'un pistolet surgit d'un angle de la rue. Scooby et Sammy coururent vers une voiture où ils s'y cachèrent.  
 
-4 mangemorts étaient derrière lui. N'écoutant que son instinct, Scooby se jeta derrière un rocher quand Sammy surgit d'une cabine de téléphérique. Scooby se rendit compte qu'il n'avait que très peu d'entrainement et qu'il avait oublié sa baguette chez lui.
+Voldemort les chercha et failli repartir quand Sammy éternua. Voldemort se retourna, attrapa Sammy le mis dans le coffre de sa mysterymachine garée en contrebas et démara a toute allure. 
 
-Heureusement, Sammy avait pensé a tout et lui avait amené une Mystery Machine immatriculé : 59-SDR-47. Scooby s'enfuit et alla chercher de l'aide rue incroyable (une rue recommandée par Sammy en cas de besoin). Il y trouva le professeur Dumbeldore qui lui vint en aide et transplana instantanément car la vie de l'ami de Scooby lui tenait a coeur. 
+Scooby couru aprés la mysterymachine de Voldemort mais il n'aperçut que la plaque d'immatriculation : 61-SCE-91. Il se rendit au commisairiat de Paris malgré le temps pluvieux et y deposa sa plainte au sujet de l'enlevement de Sammy.  
 
-Heureusement, Sammy avait pensé a tout et lui avait amené une Mystery Machine immatriculé : 59-SDR-47. Scooby s'enfuit et alla chercher de l'aide rue incroyable (une rue recommandée par Sammy en cas de besoin). Il y trouva le professeur Dumbeldore qui lui vint en aide et transplana instantanément car la vie de l'ami de Scooby lui tenait a coeur. 
+Scooby laissa la police s'en charger et alla se reposer dans son appartement. trois jours plus tard , le commisairiat affirma avoir retrouvé Sammy bailloné et ligoté dans la rue incroyable. Personne ne savait où se trouvait Voldemort mais les policiers avaient de bonnes pistes.  
+
+Scooby et Sammy marchèrent jusqu'au rez de chaussée du gratte-ciel et profitèrent d'une visite de gratte-ciel bien méritée.
